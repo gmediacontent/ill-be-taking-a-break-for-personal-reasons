@@ -1,1 +1,2 @@
-# ill-be-taking-a-break-for-personal-reasons
+# I’ll Be Taking A Break For Personal Reasons
+Je suis un auteur de webroman de troisième ordre, Yu Ill-Shin. Ne commencez pas à prier au cas où si vous pensez que je suis un dieu. C’est juste mon nom. Ce sale monde où seuls les chasseurs sont appréciés. Mais même si tu t’éveilles en tant que chasseur, tous les chasseurs ne finissent pas de la même façon. Une vie qui dépend du rang de chasseur qui normalement ne change pas une fois qu’il est fixé. Un jour, j’ai pu m’éveiller comme je le voulais désespérément. Mais ma capacité
